@@ -1,3 +1,5 @@
+![profile](circle_sketch.jpg)
+
 # About
 しがない新人PGです。
 
